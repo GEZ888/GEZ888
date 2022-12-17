@@ -1,16 +1,22 @@
-### Hi there 👋
+### Gulbarshim Zhanburchinova
 
-<!--
-**GEZ888/GEZ888** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+* Higher education in the tourism industry
 
-Here are some ideas to get you started:
+* Work experience in the tourism industry is sufficient
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+* Studied coursers:
+
+ 1. [Microsoft Power BI](https://powerbi.microsoft.com/) (basic) - data analysis and visualization
+ 
+ 2. [Tilda](https://tilda.cc/) Publishing - a platform for creating websites
+ 
+ 3. SMM
+ 
+ 
+ ##### My contacts:
+ 
+ :e-mail: gze777888@gmail.com
+ 
+ :telephone_receiver: +77759575152
+ 
+ 
